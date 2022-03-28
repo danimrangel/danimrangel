@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @danimrangel (Miguel)
-- Principal account @denyncrawford 
+- Main account @denyncrawford 
